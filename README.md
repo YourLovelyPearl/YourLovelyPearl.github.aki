@@ -1,8 +1,15 @@
+TAKE NOTE❗
+
 Take care always!✨
+
 Always stay hydrated!✨
+
 Eat on time!✨
+
 Eat some sweets to lessen stress✨
+
 FIGHTING!!✨
+
 FOCUS ON YOUR ACADS✨
 
 
